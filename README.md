@@ -5,3 +5,4 @@
 - Người yêu: Unknown
 - Lever: 1/1000
 - Sở thích: Chém gió 
+- Điện thoại: Vsmart Live
