@@ -1,4 +1,4 @@
-# Hello World!
+# Xin Chào!
 - Họ và tên: HOÀNG KIM TOẢN
 - Quê quán: TP.Đông Hà - Tỉnh Quảng Trị
 - Tuổi: Unknown
@@ -7,7 +7,7 @@
 - Sở thích: Chém gió - Nói đạo lý
 - Điện thoại: Vsmart Live
 
-# Demo Đạo Lý:
+# Câu nói
 ```
 Trên bước đường thành công, không có dấu chân của kẻ lười biếng vì kẻ lười biếng có chịu bước đâu :v
 ```
