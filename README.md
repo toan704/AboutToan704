@@ -8,4 +8,4 @@
 - Điện thoại: Vsmart Live
 
 
-#Trên bước đường thành công, không có dấu chân của kẻ lười biếng vì kẻ lười biếng có chịu bước đâu :v
+# Trên bước đường thành công, không có dấu chân của kẻ lười biếng vì kẻ lười biếng có chịu bước đâu :v
