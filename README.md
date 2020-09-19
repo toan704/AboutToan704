@@ -5,7 +5,7 @@
 - Tuổi: Unknown
 - Người yêu: Unknown
 - Sở thích: Chém gió - Nói đạo lý
-- Điện thoại: Vsmart Live
+- Điện thoại: Redmi Note 8
 ```
 Trên bước đường thành công, không có dấu chân của kẻ lười biếng vì kẻ lười biếng có chịu bước đâu :v
 ```
