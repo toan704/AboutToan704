@@ -4,7 +4,7 @@
 - Quê quán: TP.Đông Hà - Tỉnh Quảng Trị
 - Tuổi: Unknown
 - Người yêu: Unknown
-- Sở thích: Chém gió - Nói đạo lý
+- Sở thích: Ngủ zzz
 - Điện thoại: Redmi Note 8
 ```
 Trên bước đường thành công, không có dấu chân của kẻ lười biếng vì kẻ lười biếng có chịu bước đâu :v
