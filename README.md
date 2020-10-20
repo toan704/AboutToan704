@@ -1,7 +1,7 @@
 # Thông Tin Cá Nhân
 - Họ và tên: HOÀNG KIM TOẢN
 - Nick Name: Toan704
-- Quê quán: TP.Đông Hà - Tỉnh Quảng Trị
+- Quê quán: TP.Đông Hà - Quảng Trị
 - Tuổi: Unknown
 - Người yêu: Unknown
 - Sở thích: Ngủ zzz
