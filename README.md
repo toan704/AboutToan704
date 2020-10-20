@@ -5,7 +5,10 @@
 - Tuổi: Unknown
 - Người yêu: Unknown
 - Sở thích: Ngủ zzz
-- Điện thoại: Redmi Note 8
+- Điện thoại: Redmi 5A
+- Youtube: Toan704
+- Call me: 0946802129
+- Facebook: https://www.facebook.com/toan704
 ```
 Trên bước đường thành công, không có dấu chân của kẻ lười biếng vì kẻ lười biếng có chịu bước đâu :v
 ```
