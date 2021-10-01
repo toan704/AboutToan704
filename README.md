@@ -2,10 +2,10 @@
 - Họ và tên: HOÀNG KIM TOẢN
 - Nick Name: Toan704
 - Quê quán: TP.Đông Hà - Quảng Trị
-- Tuổi: Unknown
+- Tuổi: 17
 - Người yêu: Unknown
-- Sở thích: Ngủ zzz
-- Điện thoại: Redmi 5A
+- Sở thích: Được làm tất cả mọi thứ
+- Điện thoại: iPhone 11
 - Youtube: Toan704
 - Call me: 0832459123
 - Facebook: https://www.facebook.com/toan704
