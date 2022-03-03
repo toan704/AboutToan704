@@ -7,7 +7,7 @@
 - Sở thích: Được làm tất cả mọi thứ
 - Điện thoại: iPhone 11
 - Youtube: Toan704
-- Call me: 0832459123
+- Call me: 0941252704
 - Facebook: https://www.facebook.com/toan704
 ```
 Trên bước đường thành công, không có dấu chân của kẻ lười biếng vì kẻ lười biếng có chịu bước đâu :v
