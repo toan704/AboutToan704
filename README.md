@@ -5,7 +5,7 @@
 - Tuổi: 17
 - Người yêu: Unknown
 - Sở thích: Được làm tất cả mọi thứ
-- Điện thoại: iPhone 11
+- Điện thoại: Uknow
 - Youtube: Toan704
 - Call me: 0941252704
 - Facebook: https://www.facebook.com/toan704
